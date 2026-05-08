@@ -1,4 +1,4 @@
-
+Enhance Notion for macOS with smart Notion for macOS Automation | task automation + reminders, the #1 automation. Includes task automation and reminders for a smoother experience.
 
 
 
